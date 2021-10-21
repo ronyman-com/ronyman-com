@@ -3,7 +3,7 @@
 - 🌱 I’m currently runing few coding and web applicant businesses if you are interesting to join me just let me know.
 - 💞️ I’m looking to collaborate on join venture or as reseller 
 - 📫 you can contact me at ronyman.com@outlook.com
-or visit www.ezicom.net
+or visit www.bigwebx.com
 
 <!---
 Love my job and want to share me a cup cofe here is the link to go:
