@@ -1,9 +1,9 @@
-- 👋 Hi, I’m Rony MAN
-- 👀 I’m interested in coding and have a glass of cofe before started.
-- 🌱 I’m currently runing few coding and web applicant businesses if you are interesting to join me just let me know.
-- 💞️ I’m looking to collaborate on join venture or as reseller 
-- 📫 you can contact me at ronyman.com@outlook.com
-or visit www.bigwebx.com
+- 👋 Welcome to ronyman's team.
+- 👀 Coding never been easy. but we could do here in github...
+- 🌱 to learn more about me let's visit www.ronyman.com
+- 💞️ What is your favorite project?
+- 📫 And what we can help?
+- services@ronyman.com
 
 <!---
 Love my job and want to share me a cup cofe here is the link to go:
